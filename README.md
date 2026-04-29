@@ -1,0 +1,1 @@
+Donate to the developer: 5hjGR9V2g2XvRSMyj5MpwFUrsTBj7YmLppe4t8oUcz72
